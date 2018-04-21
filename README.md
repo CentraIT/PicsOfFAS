@@ -12,4 +12,8 @@
 
 ## 或侧面固定安装在墙上
 ![image](https://github.com/CentraIT/PicsOfFAS/blob/master/%E4%BE%A7%E8%A3%85.jpg)
-![image](https://github.com/CentraIT/PicsOfFAS/blob/master/%E4%BE%A7%E8%A3%852%E5%87%BA%E9%A3%8E%E5%8F%A3-%E5%88%98%E5%85%83%E6%96%B0.jpg)注意：本图中一个新风净化机带了两个出风品，一个是图中所见，另一个在左侧墙的另一侧（卧室墙上）
+![image](https://github.com/CentraIT/PicsOfFAS/blob/master/%E4%BE%A7%E8%A3%852%E5%87%BA%E9%A3%8E%E5%8F%A3-%E5%88%98%E5%85%83%E6%96%B0.jpg)
+  
+  
+  
+注意：上图中一个新风净化机带了两个出风品，一个是图中所见，另一个在左侧墙的另一侧（卧室墙上）
